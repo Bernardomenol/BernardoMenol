@@ -10,3 +10,5 @@ Meu nome é Bernardo
 ## Você entrar em contato comigo 📫
 
 bernardo.menol@gmail.com
+
+![](https://media1.tenor.com/m/synbFMMG5wcAAAAC/rayo-mcqueen-rio-pel%C3%ADcula.gif)
